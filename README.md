@@ -7,6 +7,6 @@
 - read my [carrd](https://sicklysuite.carrd.co) and or [strawpage](https://beautythief.straw.page)
 - the only languages i speak is Portuguese and English I DO NOT KNOW SPANISH
 - not an irl or introject im just obsessed abt sirius gibson noel levine and goro akechi
+- [last.fm](https://www.last.fm/user/BlackCathedraI)
 
-- thats basically it
 - ![](https://github.com/nanakechi/ABTME/blob/main/sunday-sunday-hsr.gif)
