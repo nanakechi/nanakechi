@@ -9,4 +9,4 @@
 - not an irl or introject im just obsessed abt sirius gibson noel levine and goro akechi
 
 - thats basically it
- 
+- ![](https://github.com/nanakechi/ABTME/blob/main/sunday-sunday-hsr.gif)
